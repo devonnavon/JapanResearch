@@ -1,1 +1,1 @@
-# JapanResearch
+# Japan Research
